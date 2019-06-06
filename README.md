@@ -10,7 +10,7 @@ RONNY J x MTM x POUYA x SHAKEWELL TYPE BEAT - "WALK THE PLANK" - PROD. CLOVER
 moje ziomki od podomki
 to nie są zwykłe pionkiii szach
 zblić im lufę mat (mam) zazwyczaj
-w piąti, może czasem już we wtorki
+w piątki, może czasem już we wtorki
 elusiv cushem pachną puste worki
 siedzą i tak głowy opuszczają
 by w te wory wsadzić nosy
@@ -20,11 +20,12 @@ już tu sięgam po dzyńdzyń
 kolejny towiec pęka
 patrzę w sufit (przez chwilę)
 już jest środa
-powinna być połowa
-co? pół na pół, ziomek wrzuć na luz
+powinna połowa być
+co? pół na pół, 
 wszystko poszło
 las gibonów stoi, z winowajców 
 czystka, prosto
+a ty ziomek wrzuć na luz ledwo stoisz
 
 alternative version:
 
