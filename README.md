@@ -1,4 +1,4 @@
-# HC_SG73_Sytuacja
+# HC_SG73_Rozkład_Sytuacyjny_Tygodnia
 
 https://www.youtube.com/watch?v=QB31QQX2MNk
 RONNY J x MTM x POUYA x SHAKEWELL TYPE BEAT - "WALK THE PLANK" - PROD. CLOVER
